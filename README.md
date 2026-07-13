@@ -1,2 +1,0 @@
-# TDCE-MERO
-MERO MERO
